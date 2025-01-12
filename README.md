@@ -1,0 +1,1 @@
+# Competitive-Compensation-Planning-for-Data-Scientists-A-Global-Salary-Insight
